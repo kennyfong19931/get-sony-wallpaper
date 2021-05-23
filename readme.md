@@ -1,0 +1,1 @@
+Download today's choice image from [Sony αcafe](https://acafe.msc.sony.jp/choice/list)
